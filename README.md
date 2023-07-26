@@ -1,1 +1,1 @@
-My first readme
+I am liking my learning process so far. 
